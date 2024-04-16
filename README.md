@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lil-Charskee, Also i go buy Charlie Lynn. SOunds so much like Harkey Quinn.
+- 👋 Hi, I’m @Lil-Charskee. I also go buy Charlie Lynn. SOunds so much like Harley Quinn.
 - 👀 I’m interested in ... art and drawing. 
 - 🌱 I’m currently learning ... cyber security. 
 - 💞️ I’m looking to collaborate on ... tattoo art. 
